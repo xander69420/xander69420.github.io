@@ -1,2 +1,0 @@
-kizz sucks
-
